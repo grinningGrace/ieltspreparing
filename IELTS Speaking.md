@@ -1,3 +1,7 @@
 ## IELTS Speaking
 
-Enter text in [Markdown](http://daringfireball.net/projects/markdown/). Use the toolbar above, or click the **?** button for formatting help.
+1.sth. be an arduous process
+2. be very rewarding
+3. someone's aspiration/pursuit
+4.concentrate on sth
+5. use lateral thinking
